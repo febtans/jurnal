@@ -1,0 +1,2 @@
+# jurnal
+Kumpulan Jurnal
